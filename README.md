@@ -1,0 +1,1 @@
+# aja2_ADC_pretvorba_Anel_kre-a
